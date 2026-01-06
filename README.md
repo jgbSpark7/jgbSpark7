@@ -4,4 +4,4 @@ I am known as JgbSpark7, or simply Ren to some. While I may not deem myself extr
 transient as it may be, through this brief and fragile mortal existence.
 
 
-Fun fact abt me ina way - i got into computers because nintendo switch only had 30fps and bad ping issues
+Fun fact abt me ina way - i got into computers because my nintendo switch only had 30fps and bad ping issues
